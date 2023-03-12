@@ -1,4 +1,4 @@
 ### ohi(o).
 
-this will exist soon
+im .past (dotPast) if you cant read my username
  
