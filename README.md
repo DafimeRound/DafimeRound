@@ -1,4 +1,3 @@
 ### ohi(o).
 
-im .past (dotPast) if you cant read my username
- 
+im .past (dotPast) and i try a lot of stuff. this is because im bored.
