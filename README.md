@@ -1,6 +1,3 @@
-### ohi(o).
+### hi
 
-im .past (dotPast) and i try a lot of stuff. this is because im bored.
-
-### what i have done
-a small plugin for a small server. and also a website in html. thats it
+im dotPast. here you can find my stuff so you can roast me for being bad at my job.
